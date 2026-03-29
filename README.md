@@ -5,10 +5,9 @@
 -->
 Here are some ideas to get you started:
 
-- 🔭 I’m currently working on learning to use github.
-- 📚 I’m currently reading The Elegant Universe.
-- 🤔 I’m looking for help with ...
+- 🔭 I’m currently learning to use github/navigate these spaces...
+- 📚 Current read: The Elegant Universe.
+- 🤔 I’m looking for help with electronics...pls..
 - 💬 Ask me about music/kpop/instruments!
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: I would love to learn drums 
-📫 How to reach me: coming soon...
+- ⚡ Fun fact: In another life, i play drums
