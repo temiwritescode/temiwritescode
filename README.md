@@ -6,7 +6,7 @@
 Here are some ideas to get you started:
 
 - 🔭 I’m currently working on learning to use github.
-- 📚 I’m currently reading A Little Life.
+- 📚 I’m currently reading The Elegant Universe.
 - 🤔 I’m looking for help with ...
 - 💬 Ask me about music/kpop/instruments!
 - 😄 Pronouns: she/her
